@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on college level software projects
 - 📫 How to reach me @jericantony on Instagram
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I love going to the gym and playing football.
+- ⚡ Fun fact: I love playing football and watching movies.
 
 <!---
 Jeric-A/Jeric-A is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
